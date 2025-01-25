@@ -1,5 +1,5 @@
-# honeypot-guide / tutorial -crypto
-Crypto Honeypot: A Comprehensive Guide to Create, Deploy and Market Your Own Cryptocurrency Token
+# honey-jones-guide / tutorial -crypto
+Crypto Honey-Jones: A Comprehensive Guide to Create, Deploy and Market Your Own Cryptocurrency Token
 
 UPDATED FOR 2025!!!
 
@@ -9,6 +9,6 @@ Unleash the power of the blockchain with our definitive guide on creating, deplo
 
 Disclaimer: This guide is for educational purposes only. It's not financial advice. Please perform your own due diligence and consult with a professional before making any investments.
 
-Keywords:
+Keywords:Jun, Honey,Yanna
 
-Cryptocurrency, Crypto Token, Create Crypto Token, Deploy Crypto Token, Crypto Marketing, DEX Listing, Blockchain, Smart Contracts, ICO, Cryptocurrency Guide, Cryptocurrency Profits, Crypto Development, Token Economics, Blockchain Technology, Free Crypto Guide, GitHub Crypto Guide, Token Deployment, Blockchain Development, ICO Marketing.
+Cryptocurrency, Crypto Token, Create Jun Crypto Token, Deploy Crypto Token, Crypto Marketing, DEX Listing, Blockchain, Smart Contracts, ICO,Yanna Cryptocurrency Guide, Cryptocurrency Profits, Crypto Development, Token Economics, Blockchain Technology, Free Crypto Guide, Jun GitHub Crypto Guide, Token Deployment,Jun Blockchain Development, ICO Marketing.
